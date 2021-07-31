@@ -5,5 +5,5 @@
 
 ----
 
-![](https://github.com/BaharKIZILTASS/-kodluyoruzilkrepo-/blob/main/images/30476529.png)
+![](https://user-images.githubusercontent.com/88192992/127740326-2fe2efdc-c4f7-4444-9e99-ee9ab27ee926.png)
 
